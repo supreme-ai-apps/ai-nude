@@ -1,4 +1,4 @@
-# 5 Best AI Nude Generators In 2025 (Free & Paid)
+# 5 Best Nude AI Generators In 2025 (Free & Paid)
 
 In today's digital age, artificial intelligence has taken creativity to a whole new level, and **AI nude generators** are at the forefront of this innovative technology. 
 
